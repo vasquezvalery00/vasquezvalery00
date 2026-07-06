@@ -1,6 +1,6 @@
 
 # 👋 Hi, I'm Valery!
-👩🏻‍💻 Executive Assistant at [Compass](https://www.compass.com/)<br/>
+👩🏻‍💻 Founder & CEO at [Ikebana Miami](https://www.ikebanamiami.studio/)<br/>
 🏗 Studying Architecture at Florida International University<br/>
 👩🏻‍🎓 Studied UXUI Design at [BrainStation](https://brainstation.io/?utm_keyword=brainstation&utm_network=g&utm_matchtype=e&utm_creative=482567513012&utm_target=&utm_placement=&utm_device=c&utm_campaign=11695264746&utm_adgroup=122203905828&utm_source=AdWords&utm_target_id=aud-808969644948:kwd-296950415241&gad_source=1&gclid=Cj0KCQjw8pKxBhD_ARIsAPrG45nXQ73LVxCCBokNDM_LCNB0n1NJt7doPtWUgAoxJ3UXktB7_655c30aAmvWEALw_wcB)<br/>
 🪩 Studied Web3 at [SheFi](https://www.shefi.org/)<br/>
